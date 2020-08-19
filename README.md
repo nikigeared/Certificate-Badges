@@ -21,3 +21,7 @@ Total Badges Earned: 8
 
 https://www.youracclaim.com/users/nikigeared/badges
 
+Great Learing
+
+Machine Learning Foundations
+https://olympus1.greatlearning.in/course_certificate/PBCZECZN
